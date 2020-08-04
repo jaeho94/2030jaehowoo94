@@ -1,2 +1,2 @@
-# say wow94.githhub.io
+# saywow94.githhub.io
 profile page
